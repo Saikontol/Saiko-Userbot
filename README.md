@@ -1,0 +1,2 @@
+# Saiko-Userbot
+GUNAKAN DENGAN BIJAK
